@@ -1,1 +1,1 @@
-<img src="blob:chrome-untrusted://media-app/af09af3a-7138-47cf-b76f-1c2e49984144" alt=/><img width="896" height="996" alt="image" src="https://github.com/user-attachments/assets/f1f25c7b-2563-44b3-bc07-4d989974e657" />
+<img src="blob:chrome-untrusted://media-app/af09af3a-7138-47cf-b76f-1c2e49984144" alt><img width="896" height="996" alt="image" src="https://github.com/user-attachments/assets/f1f25c7b-2563-44b3-bc07-4d989974e657" />
