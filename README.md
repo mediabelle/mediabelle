@@ -1,1 +1,2 @@
-<img src="https://media.discordapp.net/attachments/1345515225834590290/1447761267354767370/IMG_6279.jpg?ex=6980a600&amp;is=697f5480&amp;hm=a60efc4b516efeaea6605f3f46bb62ebf174566141f046782f5c609515c9a621&amp;=&amp;format=webp&amp;width=702&amp;height=702" alt="Image"/>
+![2a103ba18fe01f07d73f9e7377cfa735](https://github.com/user-attachments/assets/7a40d8bb-be94-42f0-8c67-e657d16e57ef)
+
