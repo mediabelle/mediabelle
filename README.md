@@ -8,5 +8,8 @@
 ![145ae0481f327f47963e6206b5a06de0](https://github.com/user-attachments/assets/560b3376-6f40-4c2a-a80d-f289a6a47356)
 ![e949c57a6369cdf04bc487427f317b59](https://github.com/user-attachments/assets/a7618a5a-d438-4aac-b0e5-4ff54d5da694)
 
-<p align="center"> i love love love hazbin hotel so i might not be active as much with other fandoms, im not very active on ponytown anymore regardless so if we somehow become friends i would rather you add me on discord
+<p align="center"> i love love love hazbin hotel so i might not be active as much with other fandoms, im not very active on ponytown anymore regardless so if we somehow become friends i would rather you add me on discord . i have a like for charlastor but i do not interact with it much as it reminds me of me and my ex so please beware when interacting as charlastor with me
 
+![f38d8cdd189034367bdff2451c3cbcee](https://github.com/user-attachments/assets/4dd63978-2d92-4cb1-a69d-c5f219b16f5e)
+
+<p align="center"> i love my amazing boyfriend camron so much (1yr 3mon) <3 camron if you see this i love you baby
